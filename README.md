@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GabisitaMiau
-- 👀 I’m interested in Música And Games
+- 👀 I’m interested in Music And Games
 - 🌱 I’m currently learning 🦭
 - 💞️ I’m looking to collaborate on 🦭
 - 📫 How to reach me 🦭
